@@ -1,4 +1,4 @@
-# Hello, I'm Thomas (qxploit) 👋
+# Hello, I'm Thomas (qxploit) 👋🏼
 
 ## 🌍 Origin Profile
 - **Birthplace**: Saint-Jean-sur-Richelieu, QC, Canada
