@@ -4,7 +4,7 @@
 - **Birthplace**: Saint-Jean-sur-Richelieu, QC, Canada
 - **Current Location**: Toronto, ON, Canada
 - **Cultural Roots**: French-Canadian with Caribbean roots
-- **Citizenship(s)**: 🇫🇷 French | 🇨🇦 Canadian
+- **Citizenship(s)**: 🇬🇵 French | 🇨🇦 Canadian
 
 ## 🎂 My Birthday
 My birthday is: **July 3, 2004**
